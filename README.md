@@ -6,5 +6,10 @@ Just another repository
 Bonjour Humans!
 
 
+I am currently learning IT fundamentals and networking into my journey to cybersecurity. 
 
-Hello Kay here, I'm a huge Candice Patton fan (aka Iris West-Allen). I lovetravelling and experiencing new cultures. I'm currently in school for Computer Science with hope to work for Homeland Security. I also want buy and operate a chain of stores such as a bodaga,hair store, and built a conglemerate. 
+
+
+Cybersecurity noob  🕵️‍♂️| Linux geek 🐧 | Tech enthusiast 💻| Open source explorer🤖 |  Devours code and delicious cuisine 🍔 | Travels like a nomadic penguin 🐧✈️🛡️🌐 #Thrifty #globetrotter #linux #opensource enthusiast 
+
+
